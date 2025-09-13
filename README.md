@@ -8,6 +8,8 @@ Browse the folders above to find:
 - Professional email templates
 - Workshop materials
 - Job search strategies
+- Professional Development Worksheets
+- ...and more!
 
 Click any file to preview, then download what you need. All materials are ready to customize for your job search.
 
