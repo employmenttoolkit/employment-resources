@@ -1,6 +1,6 @@
 # Employment Resources Toolkit
 
-Welcome to your career development resource center! 
+Welcome to your Employment Resources Toolkit! 
 
 Browse the folders above to find:
 - Resume templates and examples
